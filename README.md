@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @grantdevon
-- 👀 I’m interested in peace, green energy positivity
+- 👀 I’m interested in peace, green energy and positivity
 - 🌱 I’m currently learning python
 - 📫 How to reach me - grantsolomons62@gmail.com
 
